@@ -1,5 +1,5 @@
 # perkenalan
 
-perkenalkan nama saya febrian aditya
-domisili saya di Eindhoven
-dan saya berumur 18 tahun
+perkenalkan nama saya riqi
+domisili saya di jambi
+dan saya berumur 20 tahun
